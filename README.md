@@ -18,3 +18,6 @@ Propiedad intelectual, años de protección y derechos de autor
 Sí, pero la licencia la ponés vos. 
 
 ### Mas informacion: 
+https://www.argentina.gob.ar/justicia/derechofacil/leysimple/propiedad-intelectual
+
+https://www.argentina.gob.ar/normativa/nacional/ley-11723-42755/actualizacion
